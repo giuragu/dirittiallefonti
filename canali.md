@@ -1,3 +1,3 @@
-[https://medium.com/dirittiallefonti] (Pubblicazione su Medium)
-[https://telegram.me/dirittiallefonti] (Canale Telegram @dirittiallefonti)
-[https://www.facebook.com/dirittiallefonti] (Pagina Facebook D(i)ritti alle fonti)
+(https://medium.com/dirittiallefonti)[Pubblicazione su Medium]<br> 
+(https://telegram.me/dirittiallefonti) [Canale Telegram @dirittiallefonti]<br> 
+(https://www.facebook.com/dirittiallefonti) [Pagina Facebook D(i)ritti alle fonti]
